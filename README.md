@@ -28,6 +28,6 @@ I am dedicated to bridging computational methods with cancer genetics, focusing 
 ---
 
 ### 📬 Connect With Me
-- **LinkedIn:** [linkedin.com/in/sarmitha-k-4a9156305](https://www.linkedin.com/in/sarmitha-k-4a9156305)
+- **LinkedIn:** [linkedin.com/in/sarmitha-k-4a9156395](https://www.linkedin.com/in/sarmitha-k-4a9156305)
 - **GitHub:** [github.com/SarmithaK](https://github.com/SarmithaK)
 
