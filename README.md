@@ -1,4 +1,4 @@
-# Hi there, I'm Sarmitha K 👋
+# Hi there, I'm Sarmitha Kesavan 👋
 
 **Undergraduate Researcher in Biotechnology & Computational Oncology**  
 *PSG College of Arts and Science, Coimbatore, India*
